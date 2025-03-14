@@ -1,1 +1,1 @@
-# Der-dummbot.AI
+https://poe.com/derdummbot
